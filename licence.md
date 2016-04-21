@@ -1,0 +1,1 @@
+Editace na githubu
